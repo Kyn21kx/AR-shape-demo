@@ -1,0 +1,1 @@
+Favor de ir al siguiente video para la explicación técnica: 
